@@ -1,5 +1,5 @@
 📜 TERMS & CONDITIONS — VibZura
-________________________________________
+
 Terms & Conditions – VibZura
 Last updated: January 2026
 By using VibZura, you agree to the following Terms & Conditions.
