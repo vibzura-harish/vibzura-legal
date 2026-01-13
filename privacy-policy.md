@@ -1,6 +1,6 @@
 📄 PRIVACY POLICY — VibZura
 (Play Store compliant • India compliant • Founder-friendly)
-You can copy-paste this as is.
+
 
 
 Privacy Policy – VibZura
